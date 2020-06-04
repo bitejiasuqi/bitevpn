@@ -1,9 +1,31 @@
 # QilinJaSuqi
 
-麒麟加速器官网 （需要科学上网才能打开） https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
+麒麟安卓加速器
 
 
-麒麟加速器仅供游戏，视频，娱乐，学习，交流，社交app使用。---谢绝一切极端郑智人士注册!
+
+【下载方法一】
+
+电脑浏览器访问此网页，点击网页右边的绿色按钮【Clone or download】，再点一下弹出的【Download ZIP】，
+
+不一会儿，电脑浏览器会自动下载，获取压缩包安装文件。
+
+把压缩包里的apk解压出来，并把apk文件传输同步到安卓手机里去安装
+
+
+【下载方法二】
+
+国内网盘文件下载，下载速度快，方便简单。可以电脑或者手机的浏览器访问进行下载。
+网盘文件下载地址：https://ww.lanzous.com/id19n9a
+
+（如果下载方法二的网盘失效打不开，请使用下载方法一）
+
+
+
+【麒麟加速器官网】 （需要科学上网才能打开） https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
+
+
+【麒麟加速器仅供游戏，视频，娱乐，学习，交流，社交app使用。---谢绝一切极端郑智人士注册!
 
 
 国外合法注册，多年在中国运作经验，不受任何地区政策影响
