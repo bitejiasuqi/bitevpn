@@ -1,4 +1,4 @@
-# QilinJaSuqi
+# QilinJaSuqi 下载安装说明书
 
 麒麟安卓加速器
 
@@ -6,7 +6,7 @@
 
 【下载方法一】
 
-电脑浏览器访问此网页，点击网页右边的绿色按钮【Clone or download】，再点一下弹出的【Download ZIP】，
+电脑浏览器访问此网页，点击网页右上边的绿色按钮【Clone】，再点一下弹出的【Download ZIP】，
 
 不一会儿，电脑浏览器会自动下载，获取压缩包安装文件。
 
