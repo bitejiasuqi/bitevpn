@@ -29,7 +29,7 @@
 【麒麟加速器官网】 （需要科学上网才能打开） https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
 
 
-【麒麟加速器仅供海外游戏，国外视频，娱乐，学习，交流社交app使用---谢绝一切极端郑智人士注册!
+【麒麟加速器仅供海外游戏，国外视频，娱乐，学习，交流，海外社交app使用】---谢绝一切极端郑智人士注册!
 
 
 国外合法注册，多年在中国运作经验，不受任何地区政策影响
