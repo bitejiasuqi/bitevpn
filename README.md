@@ -6,11 +6,9 @@
 
 【下载方法一】
 
-电脑浏览器访问此网页，点击网页右上边的绿色按钮【Code】，再点一下弹出的【Download ZIP】，
+官方网站下载获取
+https://w.url.cn/s/AURfwfL
 
-不一会儿，电脑浏览器会自动下载，获取压缩包安装文件。
-
-把压缩包里的apk解压出来，并把apk文件传输同步到安卓手机里去安装
 
 
 【下载方法二】
@@ -26,7 +24,7 @@
 
 
 
-【麒麟加速器官网】 （需要科学上网才能打开） https://share.kylinaccelerator.com/webroot/download/kylin/other/info_kylin_ou.html
+
 
 
 【麒麟加速器仅供海外游戏，国外视频，娱乐，学习，交流，海外社交app使用】---谢绝一切极端郑智人士注册!
