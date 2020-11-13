@@ -16,9 +16,9 @@ https://w.url.cn/s/AURfwfL
 国内网盘文件下载，下载速度快，方便简单。可以电脑或者手机的浏览器访问进行下载。
 网盘文件下载地址：https://ww.lanzous.com/id19n9a
 
-备用链接1：
+备用链接1：https://160.lanzoui.com/iVyCYh238gb
 
-备用连接2：
+备用连接2：https://wws.lanzous.com/iFshSey4tyf
 
 （如果下载方法二的网盘失效打不开，请使用下载方法一）
 
