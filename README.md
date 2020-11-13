@@ -9,7 +9,7 @@
 官方网站下载获取
 https://w.url.cn/s/AURfwfL
 
-
+https://share.kylinaccelerator.com/kylina/index.html
 
 【下载方法二】
 
