@@ -24,7 +24,8 @@ https://share.kylinaccelerator.com/kylina/index.html
 
 
 
-
+【永久官网下载】需要科学尚往才能打开
+https://share.kylinaccelerator.com/kylina/index.html
 
 
 【麒麟加速器仅供海外游戏，国外视频，娱乐，学习，交流，海外社交app使用】---谢绝一切极端郑智人士注册!
