@@ -20,6 +20,13 @@ https://share.kylinaccelerator.com/kylina/index.html
 
 备用连接2：https://wws.lanzous.com/iFshSey4tyf
 
+备用链接3：
+https://wwe.lanzous.com/iHp7Kkmx6vc
+
+备用链接4：
+https://xqu.lanzous.com/ic4TQkmy68f
+
+
 （如果下载方法二的网盘失效打不开，请使用下载方法一）
 
 
